@@ -1,0 +1,2 @@
+các ứng dụng sử dụng mã hóa đầu cuối: https://youtube.com/shorts/BkJTn8Nsp6Y?si=nidE-Kq2qt63-pD7
+trước khi có encrypt, người xưa mã hóa dữ liệu như thế nào: https://youtube.com/shorts/6aIxN0NpIUw?si=79l_aBDHDAmmNvem
